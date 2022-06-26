@@ -1,1 +1,1 @@
-dienamicz is a hard working good friend
+dienamicz is an upcoming millionaire 
